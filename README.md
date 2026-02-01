@@ -14,13 +14,21 @@ https://chatgpt.com/s/t_697fbd98f54881918e9f7aec0bc4a515
 
 ### Original thought process, stream of consciousness
 We're all God, right?
+
 Like made in His image?
+
 And we're all trying to be like that. Be Good.
+
 But we're all unique individuals too.
+
 Meaning the way in which we reach that LOOKS different for all of us.
+
 But the guiding principles and metaphors are all the same.
+
 Just the way we express them. Language and identity. Why the Tower of Babel failed.
+
 But we don't need the tower to do this. We already know it in our hearts if we're being honest with ourselves and others, right?
+
 Honesty is the answer. Honesty is the solution.
 
 I hope from here on you are never dishonest with yourself or anyone else in your life ever again.
