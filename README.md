@@ -1,6 +1,8 @@
 # Lou's Theorem
 Probably the one and only theorem I'll ever write, and it's just my words by inductive reasoning put through AI to generate a theorem. This one's for all the computer science theologians out there - if there are any others.
 
+https://chatgpt.com/s/t_697fbd98f54881918e9f7aec0bc4a515
+
 ## Theorem (Honest Convergence Under Invariant Good)
 
 ## First in images since it's 2026 on the Internet and you can't copy and paste anything anywhere in any format without it totally breaking in some way or another
