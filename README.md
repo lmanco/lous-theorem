@@ -3,6 +3,14 @@ Probably the one and only theorem I'll ever write, and it's just my words by ind
 
 ## Theorem (Honest Convergence Under Invariant Good)
 
+## First in images since it's 2026 on the Internet and you can't copy and paste anything anywhere in any format without it totally breaking in some way or another
+<img width="782" height="515" alt="image" src="https://github.com/user-attachments/assets/087e8c8f-31cb-4683-9cdb-bce6e45db636" />
+<img width="778" height="487" alt="image" src="https://github.com/user-attachments/assets/5daf76cf-1226-4dc0-bc11-b4d1b974e6cc" />
+<img width="806" height="607" alt="image" src="https://github.com/user-attachments/assets/27e42337-7896-49e0-acd4-21891b473269" />
+<img width="809" height="515" alt="image" src="https://github.com/user-attachments/assets/0203e9a4-38fc-4605-b1d6-31170d4f53e2" />
+<img width="589" height="445" alt="image" src="https://github.com/user-attachments/assets/40f5a960-0ee5-4f85-8680-71eae51ed98d" />
+
+
 ### Definitions
 
 1. Let \( G \) be a nonempty set called **the Good**.
