@@ -44,3 +44,5 @@ I hope from here on you are never dishonest with yourself or anyone else in your
   * Literally, _find a way to do what you love_, so work becomes play and play becomes work
       * It's not about the money, but _how you use it_ - share it with those you trust most however you can, and not just your birth family
       * "Freedom is Slavery" concept - enacted in various subcultures
+   
+Paradoxes are not real. Find the missing link that makes us perceive the impossible, remove it, and whatever remains, however improbable, must be the truth. Howe's Egg Principle - Tales of Xillia
