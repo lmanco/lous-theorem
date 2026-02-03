@@ -45,4 +45,7 @@ I hope from here on you are never dishonest with yourself or anyone else in your
       * It's not about the money, but _how you use it_ - share it with those you trust most however you can, and not just your birth family
       * "Freedom is Slavery" concept - enacted in various subcultures
    
-Paradoxes are not real. Find the missing link that makes us perceive the impossible, remove it, and whatever remains, however improbable, must be the truth. Howe's Egg Principle - Tales of Xillia
+# Food for Thought (Emotional Nourishment in a Nonsensical World)
+   
+* Paradoxes are not real. Find the missing link that makes us perceive the impossible, remove it, and whatever remains, however improbable, must be the truth. Howe's Egg Principle - Tales of Xillia
+* Money is not real. It is a human creation to abstract away the concept of work, and the Internet is making it worse as we fail to be able to truly identify each other. Admittedly, I was scammed last month. I wanted what I thought I was buying, and I trusted because I had the money and it wasn't a lot, but it was a lie. Establish trust networks in real life to dispel the lies. _Use the Internet to tell nothing but the truth and the whole truth - no identities involved_
