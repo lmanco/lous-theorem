@@ -42,6 +42,5 @@ I hope from here on you are never dishonest with yourself or anyone else in your
 
 * Work
   * Literally, _find a way to do what you love_, so work becomes play and play becomes work
-    * I'm only finally able to start doing so because I created a household just by life circumstance by accident that now enables me to do the work I want to be doing _because the burden of financial overhead is low enough, but the debt owed to me for creating it is high_
       * It's not about the money, but _how you use it_ - share it with those you trust most however you can, and not just your birth family
       * "Freedom is Slavery" concept - enacted in various subcultures
