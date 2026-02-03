@@ -39,3 +39,8 @@ I hope from here on you are never dishonest with yourself or anyone else in your
 * Game Theory - Enneagram - honest personality identification via overlapping characteristics of human identity traits
   * Yes, there are only 9 types - it's not hard to divide massive groups, like 8 billion +, into smaller ones to reconcile and find a common solution
     * It's called complexity reduction (or something like that? reduction and generalization to a smaller problem space) and we do it in computing _every day_ - Thank you, Dr. Nowak. Rest in peace.
+
+* Work
+  * Literally, _find a way to do what you love_, so work becomes play and play becomes work
+    * I'm only finally able to start doing so because I created a household just by life circumstance by accident that now enables me to do the work I want to be doing
+      * "Freedom is Slavery" concept - enacted in various subcultures
